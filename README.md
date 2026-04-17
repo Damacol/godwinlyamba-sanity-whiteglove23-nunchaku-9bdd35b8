@@ -1,4 +1,4 @@
-# Godwinlyamba/sanity-whiteglove23-nunchaku-9bdd35b8-liars-dice-1776378197 - Private, Uncensored AI for Real Creators and Devs
+# Godwinlyamba/sanity-whiteglove23-nunchaku-9bdd35b8-liars-dice-1776378197  - Private, Uncensored AI for Real Creators and Devs
 
 > Tired of AI that babysits you, logs your prompts, or hits you with "I can't do that"?
 > Meet the next-gen chatbot built for freedom, speed, and digital sovereignty.
